@@ -415,6 +415,7 @@ https://drive.google.com/drive/folders/1hCbiSln6zONghPgOPdCsdcf9d8q6jsDJ?usp=sha
 <img width="564" alt="image" src="https://github.com/user-attachments/assets/58a6a096-ff27-448b-ad70-6d22252a9454" />
 
 急诊证明单
+
 <img width="460" alt="image" src="https://github.com/user-attachments/assets/eb3083ea-25b7-48f5-9e21-a34c780b26c3" />
 
 
