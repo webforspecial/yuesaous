@@ -32,23 +32,23 @@
 
 ### 进阶版
 国内体检报告**可以作假**，不放心可以美国全查一遍，labcorp全自费也没多少钱，自己带着去查最靠谱
-labcorp登陆以后可以在[这个界面]([url](https://www.ondemand.labcorp.com/products))order test
+labcorp登陆以后可以在这个界面order test https://www.ondemand.labcorp.com/products
 
 - 流感疫苗：
 CVS/walgreen 到处都能打，每年10月以后就是流感季
 - TDAP疫苗：
-只有美国能打，GoodRx上下一个[coupon]([url](https://www.goodrx.com/boostrix))，打出来，带着到CVS/walgreen/costco 预约打，娃出生以后带一点儿抗体，所以这个月嫂上户以后打都没问题，大概$60
+只有美国能打，GoodRx上下一个coupon https://www.goodrx.com/boostrix，打出来，带着到CVS/walgreen/costco 预约打，娃出生以后带一点儿抗体，所以这个月嫂上户以后打都没问题，大概$60
 - 乙肝检查：
-Labcorp order test： [Hepatitis B Immunity Test]([url](https://www.ondemand.labcorp.com/lab-tests/hepatitis-b-immunity-test))  ($69)
+Labcorp order test： [Hepatitis B Immunity Test]([url]())  ($69) https://www.ondemand.labcorp.com/lab-tests/hepatitis-b-immunity-test
 - 幽门螺旋杆菌检查：
 Test Kit 在家查： 在amazon上搜Home Test Helicobacter Pylori Stomach Tester $17
 - HPV检查 
-Test Kit在家查： $ 69 [HPV Test]([url](https://www.everlywell.com/products/hpv-test-female/))
+Test Kit在家查： $ 69 [HPV Test]([url](https://www.everlywell.com/products/hpv-test-female/)) https://www.everlywell.com/products/hpv-test-female/
 - HIV检查: 
--- Labcorp [083935]([url](https://www.labcorp.com/tests/083935/hiv-p24-antigen-antibody-with-reflex-to-confirmation)) ($89)
--- Test Kit 在家查： [OraQuick In-Home HIV Test]([url](https://www.walmart.com/ip/OraQuick-In-Home-HIV-Test-1-Single-Use-Test/27830677?wmlspartner=wlpa&selectedSellerId=101677317&gclsrc=aw.ds&&adid=2222222222727830677_101677317_171185944273_21814802289&wl0=&wl1=g&wl2=c&wl3=719444147676&wl4=pla-2373902341624&wl5=9031922&wl6=&wl7=&wl8=&wl9=pla&wl10=5420324998&wl11=online&wl12=27830677_101677317&veh=sem&gad_source=1&gclid=Cj0KCQiA_qG5BhDTARIsAA0UHSJlRDAQy8EXv9rs9KWK9FZJTWv-tTH2Hkiwd3jvmUyBKV1Wiu1SJugaAq9YEALw_wcB)) （$19），通过检测口腔黏膜渗出液，在约20分钟内获得初步结果
+-- Labcorp [083935]([url](https://www.labcorp.com/tests/083935/hiv-p24-antigen-antibody-with-reflex-to-confirmation)) ($89) https://www.labcorp.com/tests/083935/hiv-p24-antigen-antibody-with-reflex-to-confirmation
+-- Test Kit 在家查： [OraQuick In-Home HIV Test]([url](https://www.walmart.com/ip/OraQuick-In-Home-HIV-Test-1-Single-Use-Test/27830677?wmlspartner=wlpa&selectedSellerId=101677317&gclsrc=aw.ds&&adid=2222222222727830677_101677317_171185944273_21814802289&wl0=&wl1=g&wl2=c&wl3=719444147676&wl4=pla-2373902341624&wl5=9031922&wl6=&wl7=&wl8=&wl9=pla&wl10=5420324998&wl11=online&wl12=27830677_101677317&veh=sem&gad_source=1&gclid=Cj0KCQiA_qG5BhDTARIsAA0UHSJlRDAQy8EXv9rs9KWK9FZJTWv-tTH2Hkiwd3jvmUyBKV1Wiu1SJugaAq9YEALw_wcB)) （$19），通过检测口腔黏膜渗出液，在约20分钟内获得初步结果 https://www.walmart.com/ip/OraQuick-In-Home-HIV-Test-1-Single-Use-Test/27830677?wmlspartner=wlpa&selectedSellerId=101677317&gclsrc=aw.ds&&adid=2222222222727830677_101677317_171185944273_21814802289&wl0=&wl1=g&wl2=c&wl3=719444147676&wl4=pla-2373902341624&wl5=9031922&wl6=&wl7=&wl8=&wl9=pla&wl10=5420324998&wl11=online&wl12=27830677_101677317&veh=sem&gad_source=1&gclid=Cj0KCQiA_qG5BhDTARIsAA0UHSJlRDAQy8EXv9rs9KWK9FZJTWv-tTH2Hkiwd3jvmUyBKV1Wiu1SJugaAq9YEALw_wcB
 - 梅毒检查： 
-Test Kit 在家查： “[First To Know Syphilis Test]([url](https://www.amazon.com/First-Syphilis-Fingerstick-Discrete-Accurate/dp/B0DDZFYTHM/ref=sr_1_1?crid=1VL2HACMWFNWY&dib=eyJ2IjoiMSJ9.MZ4ibbFKCTgokJkC_otSeVFFQNaQPOQ_XMOkwtXKBXdETSLcLuaU3MMP4yF3vn6DYpLPGxbdeB5ryljnXDcbX6vLoj7H154WbxpVKQR7EM0.NiNHkTvRtGI_afPKgKEFN6qV7J41pa9H24rmYcpYOEs&dib_tag=se&keywords=First+To+Know+Syphilis+Test&qid=1730748710&sprefix=%2Caps%2C151&sr=8-1))” ($30) 通过检测血液中的梅毒螺旋体抗体，在约15分钟内提供初步结果
+Test Kit 在家查： “[First To Know Syphilis Test]([url]())” ($30) 通过检测血液中的梅毒螺旋体抗体，在约15分钟内提供初步结果：https://www.amazon.com/First-Syphilis-Fingerstick-Discrete-Accurate/dp/B0DDZFYTHM/ref=sr_1_1?crid=1VL2HACMWFNWY&dib=eyJ2IjoiMSJ9.MZ4ibbFKCTgokJkC_otSeVFFQNaQPOQ_XMOkwtXKBXdETSLcLuaU3MMP4yF3vn6DYpLPGxbdeB5ryljnXDcbX6vLoj7H154WbxpVKQR7EM0.NiNHkTvRtGI_afPKgKEFN6qV7J41pa9H24rmYcpYOEs&dib_tag=se&keywords=First+To+Know+Syphilis+Test&qid=1730748710&sprefix=%2Caps%2C151&sr=8-1
 
 ## 油子月嫂的常见套路及防范方式
 
