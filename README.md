@@ -155,8 +155,11 @@ https://www.ccld.dss.ca.gov/transparencyapi/api/FacilityReports?facNum=384004643
 
 
 #### LIUJ CAO （偷懒耍滑、玩手机，不干活）育儿嫂 
+
 <img width="282" alt="image" src="https://github.com/user-attachments/assets/8e014c3e-7f78-4887-abc8-ca39a2932e65" />
+
 <img width="296" alt="image" src="https://github.com/user-attachments/assets/85639f65-1b4a-4f5e-ab23-162e9b68c32d" />
+
 <img width="245" alt="image" src="https://github.com/user-attachments/assets/7d271434-2257-40c7-acac-4426fc9fd284" />
 
 
@@ -232,7 +235,6 @@ https://www.ccld.dss.ca.gov/transparencyapi/api/FacilityReports?facNum=384004643
 #### 刘军 糊弄 （月嫂）
 
 https://nanny.fyi/en/serviceProvider/5f781c5cf516840012ead898
-
 湾区宝妈说她专业能力还可以，总体素质还算挺高，但也问题一堆，但是之前基本上都在咱们湾区，糊弄糊弄差不多，好多宝爸宝爸没空管那么细致，结果去了Newport coast有钱人眼里容不得沙子，反手给了个一星。
 
 
@@ -311,6 +313,7 @@ https://drive.google.com/drive/folders/1hCbiSln6zONghPgOPdCsdcf9d8q6jsDJ?usp=sha
 
 #### 明婉英 月嫂
 300🔪一天带4个小月娃，不照顾宝宝，每天要吃牛油果，全麦面包，苹果，酸奶，下午到岗算一整天钱，离岗中午走算一天钱。带娃看手机，是个月嫂，北美月嫂红黑榜五星好评阿姨。。。给大家提醒 太坑了
+
 <img width="394" alt="image" src="https://github.com/user-attachments/assets/3809c3e1-f251-43f7-98ee-57b219db118f" />
 
 ```
