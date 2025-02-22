@@ -162,7 +162,6 @@ https://www.ccld.dss.ca.gov/transparencyapi/api/FacilityReports?facNum=384004643
 
 <img width="245" alt="image" src="https://github.com/user-attachments/assets/7d271434-2257-40c7-acac-4426fc9fd284" />
 
-
 #### Liu， Jinlan 月嫂 
 ```
 1. 工作态度不端正，份内的工作比如洗奶瓶、喂奶、记录喂奶时间，都诸多抱怨。洗不干净，导致泵奶配件发霉。
