@@ -1,4 +1,4 @@
-# 北美月嫂管理及避雷攻略
+<img width="724" alt="image" src="https://github.com/user-attachments/assets/5149e6f7-607f-4c83-850a-c0fcd37c0db0" /># 北美月嫂管理及避雷攻略
 
 新手娃爸妈可以用**月嫂名字在页面内搜索**，看看在不在黑名单上
 
@@ -110,15 +110,20 @@ https://www.irs.gov/forms-pubs/about-form-3949-a
 ### 黑名单（欢迎投稿补充）
 #### 北美阳光（黑中介） North American Sunshine Housework Agency 
 她家换了好几个马甲了，女的是个青岛人 ，现在别人告诉我她们雇佣了一个讲粤语的帮她们，女儿住在95051 之前也被爆出来卖二手经常少东西 她妈妈号称自己以前是警察,导致很多人不敢报警
+<img width="269" alt="image" src="https://github.com/user-attachments/assets/d3751e32-2e84-4092-99f2-b0f4ea63a243" />
 
 后来开幼儿园被investigated
 https://www.ccld.dss.ca.gov/transparencyapi/api/FacilityReports?facNum=384004643&inx=2
 
 
 #### 黄倩  （喂药）育儿嫂 
+<img width="505" alt="image" src="https://github.com/user-attachments/assets/85583ad9-05fa-4fcd-a135-83cb0bb8436f" />
+<img width="302" alt="image" src="https://github.com/user-attachments/assets/ed8edfc6-5342-4566-8555-539fbde4f021" />
 
 #### Xiaomei hong（业务不精，没有照顾小月龄的经验）月嫂 
 不是坏人，当月嫂不太行，当育儿嫂可能还可以
+<img width="235" alt="image" src="https://github.com/user-attachments/assets/2a0e7f0a-0761-4834-958c-187d0cfca3d0" />
+
 
 
 
@@ -141,6 +146,9 @@ https://www.ccld.dss.ca.gov/transparencyapi/api/FacilityReports?facNum=384004643
 
 
 #### LIUJ CAO （偷懒耍滑、玩手机，不干活）育儿嫂 
+<img width="282" alt="image" src="https://github.com/user-attachments/assets/8e014c3e-7f78-4887-abc8-ca39a2932e65" />
+<img width="296" alt="image" src="https://github.com/user-attachments/assets/85639f65-1b4a-4f5e-ab23-162e9b68c32d" />
+<img width="245" alt="image" src="https://github.com/user-attachments/assets/7d271434-2257-40c7-acac-4426fc9fd284" />
 
 
 #### Liu， Jinlan 月嫂 
@@ -204,6 +212,7 @@ https://www.ccld.dss.ca.gov/transparencyapi/api/FacilityReports?facNum=384004643
 这个黑心台湾阿姨叫谢宜桦，52岁，体型胖，满面笑容，听起来很随和。她很擅长洗脑pua，善于伪装！让你会觉得她很可靠。希望宝妈们一定要避雷这个阿姨！
 ···
 #### 刘宏 又懒又坏，骗钱，能力差，脾气差（月嫂，可能在月子中心碰到）
+<img width="400" alt="image" src="https://github.com/user-attachments/assets/ae5a10e5-33fc-450d-9c13-6a20519e325a" />
 
 坚持不懈努力害人的月嫂，还在上工!
 我家害人精月嫂刘阿姨最近被爆还在上工，私人家庭去不了，就在月子中心上工!月中心她也干的时好时坏，可能有人看的紧她会把宝宝带得好，但我这里听到的她在月子中心都是干的不好的。
@@ -218,6 +227,9 @@ https://nanny.fyi/en/serviceProvider/5f781c5cf516840012ead898
 
 #### 刘桂田 （🖤月嫂）恶毒 摔娃 虐婴
 美国tiktok HR Christina Liu假装宝妈 在小红书推荐她亲妈当月嫂，虐待雇主家孩子，太变态了，有视频为证，出事后连夜把她亲妈送回国
+<img width="387" alt="image" src="https://github.com/user-attachments/assets/1453fc30-0cae-469b-9dc4-1984367deed4" />
+<img width="398" alt="image" src="https://github.com/user-attachments/assets/f16f2052-9a4e-41cf-838c-535482f7aa61" />
+<img width="406" alt="image" src="https://github.com/user-attachments/assets/436af81f-4234-4dee-ab6a-882f457403c3" />
 
 帖子：
 https://www.1point3acres.com/bbs/thread-1097626-1-1.html
@@ -251,29 +263,39 @@ https://drive.google.com/drive/folders/1hCbiSln6zONghPgOPdCsdcf9d8q6jsDJ?usp=sha
 希望可以提供这点信息帮助到大家避雷此月嫂 名字叫刘凤琴 农村人带娃 大家注意 孩子千万不要被她祸害了 
 ···
 
+<img width="229" alt="image" src="https://github.com/user-attachments/assets/975c1a9f-0386-45cf-aa46-20dff39afbff" />
 
 第三周青蛙肚子 
+<img width="188" alt="image" src="https://github.com/user-attachments/assets/7f4c33a0-ed9c-4272-b90d-a0b391b567a8" />
+
+<img width="183" alt="image" src="https://github.com/user-attachments/assets/e046b852-84ca-47b5-a1fb-9b6c29e2ee04" />
 
 我孩子那时候胀气肠绞痛哭的声音跟那个视频被虐待的哭声一模一样
 
 
 危险睡姿
+<img width="462" alt="image" src="https://github.com/user-attachments/assets/e378df86-ffb7-4228-ab12-cf1fc32061a7" />
 
 长指甲 带金表
+<img width="452" alt="image" src="https://github.com/user-attachments/assets/bdf3a3a1-6ecc-4fad-9833-6bd16ac8b4f2" />
 
 脚一盘开始喂奶了
+<img width="574" alt="image" src="https://github.com/user-attachments/assets/ca39ec5e-7d06-4a75-8ebf-977d8132cbf4" />
 
 包衣外面绑很紧的绳子 
 当时不懂
 月嫂说怕孩子手动包衣松掉会窒息
 问题是白天松开之后 手上都是裂痕
+<img width="564" alt="image" src="https://github.com/user-attachments/assets/58a6a096-ff27-448b-ad70-6d22252a9454" />
 
 急诊证明单
+<img width="460" alt="image" src="https://github.com/user-attachments/assets/eb3083ea-25b7-48f5-9e21-a34c780b26c3" />
 
 
 #### 明婉英 月嫂
 
 300🔪一天带4个小月娃，不照顾宝宝，每天要吃牛油果，全麦面包，苹果，酸奶，下午到岗算一整天钱，离岗中午走算一天钱。带娃看手机，是个月嫂，北美月嫂红黑榜五星好评阿姨。。。给大家提醒 太坑了
+<img width="394" alt="image" src="https://github.com/user-attachments/assets/3809c3e1-f251-43f7-98ee-57b219db118f" />
 
 ···
 PM我避雷北美月嫂5星好评坑b故意隐瞒阿姨！
@@ -307,6 +329,9 @@ anway我吐槽结束了 大家避雷一下就好了 破财免灾我就这么想�
 
 #### 阿平，Shek, Kam Ping  （育儿嫂，谎报年龄8+岁，摆烂，磨洋工）
 阿平阿姨，身份证56年 说自己写大了8-9年， 实际年纪不详，福建籍香港人，请过这么多阿姨，她真是我遇到最会磨洋工的了. 
+<img width="724" alt="image" src="https://github.com/user-attachments/assets/ef75129c-54ba-4818-9155-c4a52974ae6f" />
+<img width="768" alt="image" src="https://github.com/user-attachments/assets/2b041c66-5824-4bbb-91c5-30984934a0c0" />
+
 
 在我这里做了1个半月 一开始提醒一下勤快两周，后来勤快两天 到最近说不动了！一开始觉得她带孩子不错，做家务慢我搭把手帮一下也没啥，做熟了之后就开始磨洋工。带小孩越来越慢，导致孩子不够时间吃辅食，很多時間都在high chair等她做家务/慢悠悠的吃早饭。更過分的是在我主动offer看孩子让她吃饭收拾，40分钟后她接过去喂奶，我一看，居然饭碗放水池，还留个锅不洗，这是什么意思，专门留给我洗吗？
 
