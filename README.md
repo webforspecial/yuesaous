@@ -1,5 +1,6 @@
 # 北美月嫂管理及避雷攻略
-新手娃爸妈可以用**月嫂名字在页面内搜索**，看看在不在黑名单上
+
+快速使用方法：新手娃爸妈可以用**月嫂名字在页面内搜索**，看看在不在黑名单上
 
 # 流程及技术干货
 ## 签约时跟月嫂要什么关键信息
@@ -36,12 +37,12 @@ Test Kit在家查： $ 69 [HPV Test](https://www.everlywell.com/products/hpv-tes
 - Labcorp [083935](https://www.labcorp.com/tests/083935/hiv-p24-antigen-antibody-with-reflex-to-confirmation)($89) 
 - Test Kit 在家查： [OraQuick In-Home HIV Test](https://www.walmart.com/ip/OraQuick-In-Home-HIV-Test-1-Single-Use-Test/27830677?wmlspartner=wlpa&selectedSellerId=101677317&gclsrc=aw.ds&&adid=2222222222727830677_101677317_171185944273_21814802289&wl0=&wl1=g&wl2=c&wl3=719444147676&wl4=pla-2373902341624&wl5=9031922&wl6=&wl7=&wl8=&wl9=pla&wl10=5420324998&wl11=online&wl12=27830677_101677317&veh=sem&gad_source=1&gclid=Cj0KCQiA_qG5BhDTARIsAA0UHSJlRDAQy8EXv9rs9KWK9FZJTWv-tTH2Hkiwd3jvmUyBKV1Wiu1SJugaAq9YEALw_wcB) （$19），通过检测口腔黏膜渗出液，在约20分钟内获得初步结果
 #### 梅毒检查： 
-Test Kit 在家查： “[First To Know Syphilis Test](https://www.amazon.com/First-Syphilis-Fingerstick-Discrete-Accurate/dp/B0DDZFYTHM/ref=sr_1_1?crid=1VL2HACMWFNWY&dib=eyJ2IjoiMSJ9.MZ4ibbFKCTgokJkC_otSeVFFQNaQPOQ_XMOkwtXKBXdETSLcLuaU3MMP4yF3vn6DYpLPGxbdeB5ryljnXDcbX6vLoj7H154WbxpVKQR7EM0.NiNHkTvRtGI_afPKgKEFN6qV7J41pa9H24rmYcpYOEs&dib_tag=se&keywords=First+To+Know+Syphilis+Test&qid=1730748710&sprefix=%2Caps%2C151&sr=8-1)” ($30) 通过检测血液中的梅毒螺旋体抗体，在约15分钟内提供初步结果
+- Test Kit 在家查： “[First To Know Syphilis Test](https://www.amazon.com/First-Syphilis-Fingerstick-Discrete-Accurate/dp/B0DDZFYTHM/ref=sr_1_1?crid=1VL2HACMWFNWY&dib=eyJ2IjoiMSJ9.MZ4ibbFKCTgokJkC_otSeVFFQNaQPOQ_XMOkwtXKBXdETSLcLuaU3MMP4yF3vn6DYpLPGxbdeB5ryljnXDcbX6vLoj7H154WbxpVKQR7EM0.NiNHkTvRtGI_afPKgKEFN6qV7J41pa9H24rmYcpYOEs&dib_tag=se&keywords=First+To+Know+Syphilis+Test&qid=1730748710&sprefix=%2Caps%2C151&sr=8-1)” ($30) 通过检测血液中的梅毒螺旋体抗体，在约15分钟内提供初步结果
 
 # 真正的干货：mindset和月嫂管理心态
 
 ## 前情陈述
-我请过2个月嫂，第一个踩坑第二个碰到神仙月嫂，对比之下明白了她们很多套路，这里是结合自己的经历和群里其他姐妹的分享总结出来的小要点，供新手爸妈参考。
+请过2个月嫂，第一个踩坑第二个碰到神仙月嫂，对比之下明白了她们很多套路，这里是结合自己的经历和群里其他姐妹的分享总结出来的小要点，供新手爸妈参考。
 
 ## 基本mindset
 其实带娃没那么难，特别是月子里的娃，**小红书上的信息足够了**，新手爸妈可以考虑请个打扫家务的阿姨，空出时间来自己学习自己带娃，**请月嫂是为了让我们省心，不省心的请来了反而是个麻烦，宁愿不要**
