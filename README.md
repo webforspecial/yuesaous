@@ -286,19 +286,23 @@ https://drive.google.com/drive/folders/1hCbiSln6zONghPgOPdCsdcf9d8q6jsDJ?usp=sha
 
 我孩子那时候胀气肠绞痛哭的声音跟那个视频被虐待的哭声一模一样
 
-危险睡姿
+危险睡姿:
+
 <img width="462" alt="image" src="https://github.com/user-attachments/assets/e378df86-ffb7-4228-ab12-cf1fc32061a7" />
 
-长指甲 带金表
+长指甲 带金表:
+
 <img width="452" alt="image" src="https://github.com/user-attachments/assets/bdf3a3a1-6ecc-4fad-9833-6bd16ac8b4f2" />
 
-脚一盘开始喂奶了
+脚一盘开始喂奶了:
+
 <img width="574" alt="image" src="https://github.com/user-attachments/assets/ca39ec5e-7d06-4a75-8ebf-977d8132cbf4" />
 
 包衣外面绑很紧的绳子 
 当时不懂
 月嫂说怕孩子手动包衣松掉会窒息
-问题是白天松开之后 手上都是裂痕
+问题是白天松开之后 手上都是裂痕:
+
 <img width="564" alt="image" src="https://github.com/user-attachments/assets/58a6a096-ff27-448b-ad70-6d22252a9454" />
 
 急诊证明单
