@@ -138,6 +138,7 @@ https://www.irs.gov/forms-pubs/about-form-3949-a
 
 #### 庞楚云 🖤月嫂
 [懒，不做记录，不洗奶瓶，不到三天被赶走，反过来敲诈勒索雇主，要$4000多，被small claim判输](./黑名单/庞楚云pangchuyun.md)
+同时避雷蜜蜂家这个中介 www.luvibee.com
 
 #### 王淑清 🖤育儿嫂
 [懒，卫生习惯不好，粗手粗脚](./黑名单/王淑清.md)
