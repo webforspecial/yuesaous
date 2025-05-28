@@ -8,7 +8,7 @@ Quick Tip:建议大家**不要跟月嫂签书面合同**，对她们毫无约束
 
 
 快速总结看这个视频
-[北美请月嫂真实经历和避坑指南](https://youtu.be/9P5QecrYmis)
+[北美请月嫂真实经历和避坑指南](https://youtu.be/iDTOW85L67A)
 
 
 # 流程及技术干货
