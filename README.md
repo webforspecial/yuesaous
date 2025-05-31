@@ -7,8 +7,15 @@ Quick Tip:建议大家**不要跟月嫂签书面合同**，对她们毫无约束
 最近月嫂/育儿嫂告雇主非法雇佣的案子听到了一些，大家。。。**还是。。。尽量。。。不要请住家月嫂/育儿嫂了，在湾区这个行业基本等同于缅甸诈骗集团了**，网上不认识的人再热心的网友介绍的推荐的都不要信，真要用，非要自己认识真人的朋友同事（你至少要知道对方名字）本人真的用过了再推荐的可以谨慎偷摸摸的使用，任何网友推荐都不要信，雷的可能性超过90%（如果不是100%的话）
 
 
-快速总结看这个视频
-[北美请月嫂真实经历和避坑指南](https://youtu.be/iDTOW85L67A)
+没事儿可以听听郭德纲和于谦大爷跟您讲解的北美月嫂避坑指南系列：
+
+<a href="https://www.youtube.com/watch?v=wLoBA3_nI9E" target="_blank">
+  <img src="https://github.com/user-attachments/assets/88d63791-7f80-4bd1-be8a-3133ba8cb397" width="240" />
+</a>
+
+<a href="https://www.youtube.com/watch?v=owl7xUZ014o" target="_blank">
+  <img src="https://github.com/user-attachments/assets/152f231a-4f0e-4b72-9f2f-aa44ddad396c" width="240" />
+</a>
 
 
 # 流程及技术干货
